@@ -1,1 +1,1 @@
-# SidneiJr77.github.io
+I want to start this lecture note project!
